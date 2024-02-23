@@ -1,4 +1,4 @@
-# Welcome to My PC and Electronics Specs Showcase!
+# Welcome to My PC and Electronics Specs Showcase!  
 
 ## About Me
 
