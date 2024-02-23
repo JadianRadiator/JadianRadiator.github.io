@@ -1,4 +1,4 @@
-**MSI GT72VR 6RD Dominator**
+**MSI GT72VR 6RD Dominator**  
 
 **Operating System:** Windows 10 Home
 
